@@ -1,10 +1,6 @@
 # myfirstproject
-hello worldwevgrb
-modify1 
-11sdve
-1
-evagr
+MY FIRST PROJECT
+EWFGR
 
-
-1aegvrb
-ewgyhthgewfvdc11
+AEGWVRSBNT
+AEVBRS
